@@ -1,1 +1,0 @@
-# jayforgood.github.io
